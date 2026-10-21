@@ -1,4 +1,4 @@
-## Hi there 👋
+## 𓆟𓆞𓆝𓆜
 
 <!--
 **Nuri2kewl4Skewl/Nuri2kewl4Skewl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
