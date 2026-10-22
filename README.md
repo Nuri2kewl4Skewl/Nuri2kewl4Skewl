@@ -1,4 +1,4 @@
-## 𓆟𓆞𓆝𓆜<img width="569" height="320" alt="17157ab76b20ff41ee4fed2a4002aed0" src="https://github.com/user-attachments/assets/c864671d-cfaf-41b9-b5db-1e08bfb42e5e" />
+## <img width="569" height="320" alt="17157ab76b20ff41ee4fed2a4002aed0" src="https://github.com/user-attachments/assets/c864671d-cfaf-41b9-b5db-1e08bfb42e5e" />
 
 
 <!--
