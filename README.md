@@ -1,4 +1,5 @@
-## 𓆟𓆞𓆝𓆜
+## 𓆟𓆞𓆝𓆜<img width="569" height="320" alt="17157ab76b20ff41ee4fed2a4002aed0" src="https://github.com/user-attachments/assets/c864671d-cfaf-41b9-b5db-1e08bfb42e5e" />
+
 
 <!--
 **Nuri2kewl4Skewl/Nuri2kewl4Skewl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
