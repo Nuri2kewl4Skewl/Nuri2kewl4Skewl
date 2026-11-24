@@ -8,7 +8,7 @@
 <img width="150" height="20" alt="e45" src="https://github.com/user-attachments/assets/1950bd35-ba36-46e2-8d13-b871c5363ede" /><img width="150" height="20" alt="sharklover" src="https://github.com/user-attachments/assets/1ac1d96f-92c6-44ae-baa1-aa2e0dec94fc" />
 
 <img width="400" height="20" alt="ocean" src="https://github.com/user-attachments/assets/bde3a623-c0d3-4ed3-aba5-8e30941e01dd" />
-$\color{#9EDFF}{\text{a}}$
+
 
 
 
